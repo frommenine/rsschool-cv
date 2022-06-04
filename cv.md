@@ -13,7 +13,6 @@
 > Well, I just want to learn Front-End Development at RS school and and nothing else
 
 ## Skills
-
 * HTML5
 * SCSS
 * CSS
@@ -37,7 +36,6 @@ function greet() {
 ```
 
 ## Projects
-
 - [Productly](https://frommenine.github.io/Productly/)
 
 
@@ -46,7 +44,6 @@ function greet() {
  - IT Academy Brest
 
 ## Languages:
-
 English *INTERMEDIATE*
 
 German *INTERMEDIATE*
