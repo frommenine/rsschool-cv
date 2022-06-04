@@ -7,6 +7,7 @@
 * 🐙 discord *[frommenine#0586](https://discord.gg/8ff7yDpeyb)*
 * 🔎 linkedIn *[Lizaveta](https://www.linkedin.com/in/lizaveta-bogusch-1588a3225/)*
 * 🎬 instagram *[@frommenine](https://www.instagram.com/frommenine/)*
+* 🗿 vk *[@frommenine](https://vk.com/frommenine)*
 
 
 ## Briefly About Myself:
