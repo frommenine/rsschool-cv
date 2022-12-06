@@ -2,7 +2,7 @@
 ![7eKRpgIeXLBEWC2iGaUtxKXEEe6eldjpATqSdPnVrc-qG64DLFA64eLUctUikcOBgGWqNvuc](https://user-images.githubusercontent.com/87004621/172003514-b7f0d3fd-3a15-4c97-8c17-f28e35949482.jpg)
 
 ## Contact
-* 💌 e -mail *liza.bogusch1999@gmail.com*
+* 💌 e-mail *liza.bogusch1999@gmail.com*
 * ✈ telegram *https://t.me/elizavetaboo*
 * 🐙 discord *[frommenine#0586](https://discord.gg/8ff7yDpeyb)*
 * 🔎 linkedIn *[Lizaveta](https://www.linkedin.com/in/lizaveta-bogusch-1588a3225/)*
